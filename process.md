@@ -1,0 +1,3 @@
+Combine instant coffee, sugar and hot water in a mixing bowl. Mix them well. ...
+Add then ice cubes in a mug then pour over the milk. Scoop out the whipped coffee on top of the milk. 
+And you are done.
